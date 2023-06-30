@@ -1,1 +1,1 @@
-# Great-project-with-great-gpt
+# G3 member：温佳慧，韩香，吴美慧，林王静
